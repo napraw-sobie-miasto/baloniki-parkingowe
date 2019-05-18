@@ -26,3 +26,18 @@
 
 > Łatwiej się dorobić fury
 > Niż nauczyć się kultury!
+
+> Wiedz, że kiedy tu parkujesz, 
+> pieszym drogę tarasujesz.
+
+> Objaw samolubnej mody, 
+> tu parkować samochody
+
+> Jak nie masz kasy na parkowanie, 
+> kup hulajnogę lub trampki tanie.
+
+> Nie walcz z pieszym, jak na ringu, 
+> postaw auto na parkingu.
+
+> Jeśli przepisy i pieszych masz w nosie, 
+> znajdziemy Tobie parking w Kosmosie.
