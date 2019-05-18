@@ -1,1 +1,2 @@
-
+* Balonik zostawiłem na BMW na katowickich blachach około 10:00 w najbardziej konfiktogennym miejscu na kampusie Uniwersytetu Śląskiego - na zjeździe z drogi dla rowerów. To tam często spuszczali powietrze.
+* Wracając po ponad 4 godzinach tego BMW już nie było, a następne auto - Skoda na rejestracjach jaworznickich zajęła już tylko pół zjazdu. Balonik leżał w krzakach, ale był widoczny dla reszty.
