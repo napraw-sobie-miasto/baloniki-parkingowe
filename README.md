@@ -27,3 +27,7 @@ _kursywą kroki opcjonalne_
 * Być może w miejscu, w którym działasz od jakiegoś czasu trwa już wojna podjazdowa - spuszczanie powietrza z opon lub naklejanie karnych kutasów. Wstrzymaj oddech - nie dołączaj się do eskalacji konfliktu. Spuszczanie powietrza zatrzymuje samochód w nielegalnym miejscu na wiele dłużej, karny kutas może zniszczyć komuś karoserię.
 * Nie lepiej zadzwonić na Straż Miejską? Nie liczmy na to, oni mają co robić - nie mają takiej przepustowości.
 
+
+
+<br/><br/>**Napraw Sobie Miasto 2019**<br/>
+<a rel="license" href="http://creativecommons.org/licenses/by-nc/4.0/"><img alt="Licencja Creative Commons" style="border-width:0" src="https://i.creativecommons.org/l/by-nc/4.0/88x31.png" /></a><br />Ten utwór jest dostępny na <a rel="license" href="http://creativecommons.org/licenses/by-nc/4.0/">licencji Creative Commons Uznanie autorstwa-Użycie niekomercyjne 4.0 Międzynarodowe</a>.
